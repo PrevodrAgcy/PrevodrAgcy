@@ -21,7 +21,7 @@ Have a project in mind or need assistance with your digital presence? We'd love 
 
 📧 **Email:** hi@prevodr.com
 🌐 **Website:** [prevodr.com](https://prevodr.com)
-📱 **Twitter:** [@PrevodrOfficial](https://twitter.com/PrevodrOfficial)
-📸 **Instagram:** [@prevodrofficial](https://www.instagram.com/prevodrofficial/)
+📱 **Twitter:** [@PrevodrOfficial](https://twitter.com/PrevodrAgency)
+📸 **Instagram:** [@prevodrofficial](https://www.instagram.com/prevodr/)
 
 Let's create something extraordinary together! 💫
